@@ -1,19 +1,7 @@
-"Made of love" - Garnet ( Steven universo)
-♡
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⢠⡾⠛⠳⠶⣤⣀⣠⣤⣤⣴⡟⠁⠀⠙⣷⠟⠋⠉⠉⢿⡀⠀⠀⠀
-⠀⠀⠀⣬⠁⠀⠀⠀⠀⠀⠀⠀⠀⡿⠀⢠⣟⣿⠿⠳⢦⣤⡴⣼⣇⠀⠀⠀
-⠀⠀⠀⢻⣤⠀⠀⠀⠀⠀⠀⠀⠀⢿⣄⣀⣽⣏⠀⠀⢸⣷⡄⠀⣿⠀⠀⠀
-⠀⠀⠀⣼⠃⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠓⢾⡟⠛⢁⣼⣟⠀⠀⠀
-⠀⢀⣼⣇⣀⣀⣀⣀⣀⡀⠀⠀⠀⠀⠀⠀⠀⠀⣀⣀⣙⣿⣿⣥⣽⢤⠀⠀
-⣀⣈⣧⣄⣀⠀⠀⠀⠀⠉⠙⠻⣶⣾⣳⣶⠟⠉⠁⠀⠀⠀⠀⠶⢻⡟⠒⠒
-⠀⠀⠸⣇⣀⠀⠀⠛⠉⠂⠀⢀⡿⣉⣉⢿⡄⠀⠒⠉⠋⠀⠀⠠⣼⠧⢤⠀
-⠀⠐⠛⠻⣍⣀⡀⠀⠀⢀⣠⠞⠙⠧⠼⠈⠳⣄⡀⠀⠀⠀⣠⣴⣟⡀⠀⠀
-⠀⠀⣠⠴⠛⠛⠿⣽⡍⢀⠀⠀⠀⠀⠀⠀⠀⠀⠉⡩⣉⠭⠿⠋⠈⠙⠂⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠈⠋⠛⠻⠷⠶⠤⠤⠴⠛⠋⠉⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+"Se o porto inteiro fosse perfeito, não haveria cachorro-quente" - Steven universo. ☆
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀
 <!---
 LaraCaroline71/LaraCaroline71 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
