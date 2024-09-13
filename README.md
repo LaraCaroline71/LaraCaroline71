@@ -1,7 +1,7 @@
 Olá, eu sou Lara Caroline ☆
 Seja bem-vindo ao meu perfil :)
 
-![](https://images.app.goo.gl/WmbC7DameDzg7gFe7)
+![](https://i.redd.it/zw6zpdy5bp4c1.jpg)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 00001129991751sp@al.educacao.sp.gov.br
